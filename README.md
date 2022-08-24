@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Rachelle Zhu
 - 👀 I’m interested in many things like programming, drawing, 3d modelling, etc...
+- ❤️ I love Suisei sooooo much!
 
 <!---
 rachellezhu/rachellezhu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
