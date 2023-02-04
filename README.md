@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rachelle Zhu
-- 👀 I’m interested in many things like programming, drawing, 3d modelling, etc...
+- 👀 I’m interested in many things like programming, drawing, and 3d modelling
 - ❤️ I love Suisei sooooo much!
 
 <!---
